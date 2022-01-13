@@ -1,6 +1,6 @@
 - 👋 Hello, this is @NWB2022
 - 👀 I’m interested in technology
-- 🌱 It is is my first step in this field
+- 🌱 It is my first step in this field
 - 💞️ I am ready to learn more
 - 📫 You can contact me by e-mail: willybanyanga@yahoo.fr
 
